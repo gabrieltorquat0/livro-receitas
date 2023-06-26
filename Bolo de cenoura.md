@@ -2,7 +2,7 @@
 
 4 ovos
 
-4 cenouras medias
+3 cenouras medias
 
 2 xícara de farinha
 
